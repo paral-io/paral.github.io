@@ -1,1 +1,0 @@
-# paral.github.io
